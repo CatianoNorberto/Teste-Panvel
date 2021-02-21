@@ -1,6 +1,6 @@
 ## Teste-Panvel+
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.desconto.com.br%2Fpanvel&psig=AOvVaw0cbEsxmaxXqRVxQVbnviPD&ust=1614024116373000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNjW58Ti--4CFQAAAAAdAAAAABAD.
+https://cdn.desconto.com.br/img/merchants/130888/360-logo/v1/panvel-descontos.png
 
 ## Descrição
 
